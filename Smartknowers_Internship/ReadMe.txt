@@ -1,0 +1,1 @@
+Internship Certificate of Smartknower Internship
